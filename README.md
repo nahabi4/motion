@@ -22,6 +22,9 @@ start from 10 sets by 5, increase to 10 sets by 12, then either increase amount 
 
 ## goblet squats
 
+- "look through the window"
+- bottom-up
+- one hand
 <https://youtu.be/7EGVKUH0K10>
 
 
