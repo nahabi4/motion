@@ -15,7 +15,12 @@ stretching after training
 
 ## the six basic movements of kettlebelling
 
-- 
+- the swing
+- the clean
+- the snatch
+- the press
+- the turkish get up
+- the squat
 <https://youtu.be/RE6CSomDvl8>
 
 ## two handed kettlebell swing
