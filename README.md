@@ -37,7 +37,13 @@ start from 10 sets by 5, increase to 10 sets by 12, then either increase amount 
 - one hand
 <https://youtu.be/7EGVKUH0K10>
 
+## how to use a kettlebell
 
+<https://youtu.be/sQx_ChXs2BY>
+
+## clean and press
+
+<https://youtu.be/lKWWWgZ7XQc>
 
 #### Notes
 
