@@ -53,6 +53,8 @@ start from 10 sets by 5, increase to 10 sets by 12, then either increase amount 
 
 begginers Indian Club - 5 kg
 
+Scott Sonnon - Circular Strength Training (CST)
+
 #### Books
 
 Павел Цацулин Kettlebell: Simple & Sinister
