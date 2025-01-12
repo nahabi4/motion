@@ -45,6 +45,10 @@ start from 10 sets by 5, increase to 10 sets by 12, then either increase amount 
 
 <https://youtu.be/lKWWWgZ7XQc>
 
+## turkish get up
+
+<https://youtu.be/2YollP91Wro>
+
 #### Notes
 
 begginers Indian Club - 5 kg
