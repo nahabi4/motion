@@ -13,6 +13,11 @@ stretching after training
 
 # Kettlebells
 
+## the six basic movements of kettlebelling
+
+- 
+<https://youtu.be/RE6CSomDvl8>
+
 ## two handed kettlebell swing
 
 start from 10 sets by 5, increase to 10 sets by 12, then either increase amount of sets (if you haven't higher weight) or increase weight of kettle-bell itself
