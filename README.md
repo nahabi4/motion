@@ -10,6 +10,9 @@ neck and hands mobilization:
 
 stretching after training
 
+
+## two handed kettlebell swing
+
 start from 10 sets by 5, increase to 10 sets by 12, then either increase amount of sets (if you haven't higher weight) or increase weight of kettle-bell itself
 
 <https://youtu.be/sed8fDNyzM8>
