@@ -53,6 +53,10 @@ start from 10 sets by 5, increase to 10 sets by 12, then either increase amount 
 
 <https://youtu.be/TyZ8iYv6Ip0>
 
+# Mace
+
+top hand through opposite ear
+
 #### Notes
 
 begginers Indian Club - 5 kg
