@@ -49,6 +49,10 @@ start from 10 sets by 5, increase to 10 sets by 12, then either increase amount 
 
 <https://youtu.be/2YollP91Wro>
 
+## shoulders warm-up
+
+<https://youtu.be/TyZ8iYv6Ip0>
+
 #### Notes
 
 begginers Indian Club - 5 kg
